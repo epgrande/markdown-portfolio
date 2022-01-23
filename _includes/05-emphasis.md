@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Working at [**Museo Civico Alpino _"Arnaldo Tazzetti"_**](http://www.museotazzetti.it) in Usseglio (TO) in the ICT office 🖥️.  
+Studying in Turin.
